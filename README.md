@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on MercadoLibre<br>🌱 I’m currently learning about UX/UI design<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on MercadoLibre<br>🌱 I’m currently learning about UX/UI design<br>👨‍🎓 I’m currently studying at the Interamerican Open University<br>🏋️‍♂️ I love doing Crossfit<br>
 
 
 ## 🌐 Socials:
